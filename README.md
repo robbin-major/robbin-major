@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @robbin-major
-- 👀 I’m interested in ... Traveling, Acting and dancing in all of the clubs!
+- 👀 I’m interested in ... Traveling, acting, and dancing in all of the clubs!
 - 🌱 I’m currently learning ... AWS for he Junior Cloud practitioner CERT
 - 💞️ I’m looking to collaborate on ... ANYTHING that will futher my learning!
 - 📫 How to reach me ... robbin.major@gmail.com
