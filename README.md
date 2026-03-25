@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @robbin-major
 - 👀 I’m interested in ... Traveling, acting, and dancing in all the clubs!
-- 🌱 I’m currently learning ... Anything DevOps related!
+- 🌱 I’m currently learning ... How to make house wine
 - 💞️ I’m looking to collaborate on ... ANYTHING that will futher my learning!
 - 📫 How to reach me ... robbin.major@gmail.com
 
